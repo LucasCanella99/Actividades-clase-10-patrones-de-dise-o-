@@ -1,0 +1,1 @@
+# Actividades-clase-10-patrones-de-dise-o-
